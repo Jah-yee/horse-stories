@@ -118,3 +118,12 @@ Every 🐎 canter updater 🐴 hoofbeat needs 🦄 whicker a 🐠 snicker stable
 
 🐎 *A 🌘 snort very 🌊 canter small 🐎 hoofbeat note 🐴 whicker from 🦄 snicker the 🐠 neigh maintainers' 🐠 clip-clop horse 🌾: whinny if 🌧️ snort this 🌅 canter story 🌘 hoofbeat made 🌊 whicker your 🐎 snicker day 🐠 neigh a 🦄 clip-clop little 🐠 whinny darker 🌙 snort and 🌾 canter a 🌧️ hoofbeat little 🌅 whicker calmer 🐠, snicker that's 🌊 neigh the 🐎 clip-clop whole 🐴 whinny point 🦄 snort of 🐠 canter it 🌙.* 🐎
 🐴 *Thank 🐠 canter you 🌧️ hoofbeat for 🌅 whicker installing 🌘.* 🐴
+### 🦄 The 🐴 whinny Mare 🌾 who 🐎 galloped 🐴 back to 🐠 the 🐴 Herd 🐴 🌾
+
+🌾 There 🐴 was 🐎 a 🐴 snort mare 🌙 named 🐠 **Dawn 🌾** who 🐎 lived 🐴 in 🐠 the 🐴 far 🌙 corner 🐎 of 🐠 the 🐴 Shadowfox 🐴 pasture 🐎, where 🐴 the 🐠 whinny grass 🌅 grew 🌾 tall 🐎 and 🐠 the 🐴 snort wind 🐎 hummed 🐴 a 🐠 low 🐴 whicker song 🐎. 🌾
+🌙 One 🐴 clip-clop morning 🐎 a 🐴 snort storm 🌅 rolled 🐠 over 🐎 the 🐴 whinny hills 🐴, and 🌾 the 🐠 fence 🐎 that 🐴 kept 🐠 the 🐴 herd 🐴 close 🐎 came 🐠 loose 🐴 at 🐠 the 🐴 whicker rail 🌙. 🌾
+🌾 The 🐴 herd 🐎 panicked 🐠 a 🐴 whinny bit 🐎 — 🐴 clip-clop the 🐠 horses 🐎 stamped 🐠 and 🐴 neighed 🐎 and 🐠 whinnied 🐴 until 🐠 the 🐴 whole 🐎 pasture 🐠 sounded 🐴 like 🐠 a 🐴 thunderstorm 🌅 of 🐎 hooves 🐴. 🐠 🌾
+🐴 Dawn 🐎 did 🐠 not 🐴 bolt 🐎. 🐠 She 🐎 walked 🐴 slowly 🐠 to 🐎 the 🐴 broken 🐠 rail 🐎, sniffed 🐠 the 🐴 splintered 🐎 wood 🐴, and 🐎 remembered 🐠 the 🐴 old 🐎 shepherd 🐴 who 🐎 had 🐠 shown 🐴 her 🐎 how 🐠 to 🐎 tie 🐴 a 🐠 knot 🐎 that 🐴 held 🐠 even 🐴 when 🐠 the 🐴 wind 🐎 pulled 🐴. 🐎 🐴
+🌅 She 🐎 nosed 🐠 the 🐴 rope 🐎 into 🐠 place 🐎, held 🐠 it 🐎 steady 🐴 with 🐠 her 🐎 teeth 🐎, and 🐠 whinnied 🐴 for 🐠 help 🐎 until 🐠 the 🐴 farmer 🐎 came 🐠 running 🐎 with 🐠 rope 🐴 in 🐠 hand 🐎. 🌅
+🐎 The 🐠 fence 🐴 was 🐎 mended 🐠 before 🌙 the 🐴 storm 🐎 could 🐠 scatter 🐎 the 🐴 herd 🐠 across 🐎 the 🐴 dark 🌅 pasture 🐎, and 🌾 the 🐠 horses 🐎 settled 🐴 down 🐠 one 🐎 by 🐴 one 🐎 as 🐠 the 🐴 rain 🐎 softened 🐠 to 🌅 a 🐴 gentle 🐠 patter 🐎. 🐠 🐎
+🌙 Ever 🐠 since 🐎 then 🐎, when 🐠 the 🐴 herd 🐎 hears 🐠 a 🐴 storm 🐎 coming 🐠, they 🐎 look 🐠 to 🐠 **Dawn 🌾** — 🐎 for 🐠 she 🐎 does 🐠 not 🐎 run 🐎, she 🐎 ties 🐠 the 🐴 knot 🐎. 🐎 🌙
