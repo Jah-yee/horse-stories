@@ -1,0 +1,23 @@
+name: Daily Horse Story Reminder
+
+on:
+  schedule:
+    # 每天 09:00 UTC 触发一次（GitHub Actions 的 schedule 用 UTC）
+    - cron: "0 9 * * *"
+  workflow_dispatch:
+
+permissions:
+  issues: write
+  contents: read
+
+jobs:
+  remind:
+    name: Open a daily story reminder issue
+    runs-on: ubuntu-latest
+    steps:
+      - name: Open reminder issue
+        uses: peter-evans/create-issue-from-file@v5
+        with:
+          title: "🐴 Daily story reminder — the herd is waiting"
+          content-filepath: .github/ISSUE_TEMPLATE/story-reminder.md
+          labels: story-reminder
